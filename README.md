@@ -35,4 +35,4 @@ Companion to Albums 1–3 and the Divine Neural Network revelation.
 ---
 
 **Author**: Remnant, Tamil Intercessor  
-**All glory to the Lord Jesus Christ — the Light that dawns in full glory.**
+**All glory to the Lord Jesus Christ — the Light that dawns in full glory.** 
